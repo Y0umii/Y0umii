@@ -1,0 +1,7 @@
+- Hi, I’m @Y0umii
+-  I’m interested in video games and the idea of making the most fun game possible
+-  I’m currently in no position to be developing video games due to not owning a personal computer
+-  I’m looking to collaborate on an open world project where everything (challenges, characters, areas, etc) will be unique to that section of the game
+-  I would like some help with compiling different ideas from any who are interested
+-  The development of this game may not start for another few years but i believe it is best to be prepared for when we get there
+-  How to reach me-> discord: golden eevee#6203
